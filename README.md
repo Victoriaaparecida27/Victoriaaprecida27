@@ -2,4 +2,4 @@
 
 Meu nome é victoria Aparecida
 
-sla to sendo obrigada a faer isso 💙💙
+sla, to sendo obrigada a fazer isso 💙💙
